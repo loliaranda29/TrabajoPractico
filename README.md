@@ -1,4 +1,4 @@
-# TrabajoPracticoç
+
 # **RECETA PARA PIZZA**
 
 ## Ingredientes:

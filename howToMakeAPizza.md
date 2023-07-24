@@ -29,7 +29,7 @@
 ## Armado de la pizza:
 
 En una bandeja estiramos una bolita de masa, le agregamos salsa y la enviamos al horno 
-Cuando la masa se encuentre lista, la sacamos del horno, le agregamos el queso rallado, las tajadas de salami un poco de salsa y nuevamente al horno por unos minutos.
+Cuando la masa se encuentre lista, la sacamos del horno, le agregamos el queso rallado, las tajadas de salami un poco de salsa y nuevamente al horno por unos minutos, saquela y disfrutela.
 
 # LISTA PARA COMER...
 <<<<KatherineBalanta>>>>

@@ -1,43 +1,31 @@
-# Paso a paso de como hacer una **Pizza** a la **Joselini**.
+# PREPARACION DE LA PIZZA CAQUETEÑA HECHA EN EL FILO.
+
+## Lo que se necesita para hacerla:
+- Harina de la buena
+- Sal de la casa de la vecina
+- Salsa de tomate de la mas barata
+- Oregano semimolido, por favor no oler
+- Quesito recien descuajado, en lo posible de la leche del mismo dia que le sacaron a la vaca
+- Tomato recien bajado del cultivo
+- El toque secreto.... Salchichon cervecero, esa vaina es de DIOSES, sino lo consigue en el campo le toca que se baje pal pueblo
 
 ---
 
-## Ingredientes para hacer **Pizza** casera:
-1. _1 kilogramo de harina de fuerza (también conocida como harina 00)_
-2. _1 cucharadita de sal fina_
-4. _2½ tazas de agua tibia_
-5. _2 cucharadas soperas de aceite de oliva_
-8. _30 gramos de levadura fresca_
+ ### Herramientas:
+No se necesita, eso las puras manos campesinas hacen milagros
 
----
+#### **Al grano**
 
- ### Utensilios:
-*  _Rodillo de madera_
-* _Papel de horno_
-* _Bol_
+##### Primero que todo y para finalizar.
+ 
+ 1. Amase esa harina como si estuviera haciendo un masaje en el hombro a su amad@
+ 2. Echele sal a la Harina porque sino esa vaina queda insipida
+ 3. Aplaste esa harina como si quisiera... bueno mejor omita esta parte y aplaste
+ 4. Echele harta salsa de tomate pa que coja color esa vaina
+ 5. Pongale rodajas de tomate pero no le quite las pepitas que esa vaina da buen sabor
+ 6. Pongale las rodajas de salchichon, buenas rodajas porfavor no sean tacaños
+ 7. Ahora si al fogon de leña de la abuela
+ 8. Saque esa vaina no la deje mucho tiempo y pongale quesito sin miedo que no se va arrepentir
+ 9. Meta nuevamente al fogon hasta que se derrita ese queso asi como se derritio tu primer amor cuando te miro
+ 10. Que vaina pa larga, se me olvidaba el oregano, rocielo al queso derretido que no se va arrepentir
 
-#### **Preparación**
-
-##### Paso 1.
- Para empezar necesitamos ***actitud***, ya que es un proceso arduo y que lleva tiempo, asi que si estas con mucha hambre es preferible que cambies el chip y le pongas buen animo.
-
-##### Paso 2. 
- Para el paso 2 va a ser indispensable que hagas una pizza de lo que a ti te gusta, que si es, una pizza de banano con arroz, no te sientas mal, son tus gustos. Pero eso si ten en cuenta que te ganaste toda la furia de los italianos.
-
-##### Paso 3. 
-El paso 3 es opcional, no es un requerimiento, y es ***tomar una copita de vino*** mientras te dispones a hacer la pizza.
-
-##### Paso 4. 
-(Omita este paso en caso que no haya seguido el paso 3), para el paso 4 sera recomendable tomar otra copita de vino por si se encuentra muy deshidratado.
-
-##### Paso 5. 
-(Omita este paso en caso que no haya seguido el paso 4) toooomeeeeee otraaaa copita de vinoooo, y diga saluuuuud, brindemos por la vida....
-
-##### Paso 6.
-(ste paso en caso omita  que el paso 5 no haya seguido) T0m3seee utrrrrra botheyaa de vino y diga saluuuuuud.
-
-##### Paso 7. 
-(Sigaaa y Omitaaaa heel 2  por sy6vb...) Mheeetaa la   pizsa ennnnn el vinoo, echieleee massss vinoo, y brindemoooos saluuuuuuuud...
-
-##### Paso 8. 
-ksnjdnnjna jan ajs... slaujd!

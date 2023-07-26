@@ -1,44 +1,27 @@
-
-
-# Paso a paso de como hacer una **Pizza** a la **Joselini**.
-
-
-## Ingredientes para hacer **Pizza** casera:
-1. _1 kilogramo de harina de fuerza (también conocida como harina 00)_
-2. _1 cucharadita de sal fina_
-4. _2½ tazas de agua tibia_
-5. _2 cucharadas soperas de aceite de oliva_
-8. _30 gramos de levadura fresca_
+## Ingredientes:
 
 
 
- ### Utensilios:
-*  _Rodillo de madera_
-* _Papel de horno_
-* _Bol_
+## Preparación de la masa:
 
-#### **Preparación**
+1. En una taza colocar la harina y la sal, hacer un hueco en el centro de la harina.
+2. Luego agregamos el aceite y la levadura "disuelta en agua tibia".
+3. Mezclamos hasta obtener una masa.
+4. Dejamos reposar y leudar. 
 
-##### Paso 1.
- Para empezar necesitamos ***actitud***, ya que es un proceso arduo y que lleva tiempo, asi que si estas con mucha hambre es preferible que cambies el chip y le pongas buen animo.
+## Preparación de la salsa:
 
-##### Paso 2. 
- Para el paso 2 va a ser indispensable que hagas una pizza de lo que a ti te gusta, que si es, una pizza de banano con arroz, no te sientas mal, son tus gustos. Pero eso si ten en cuenta que te ganaste toda la furia de los italianos.
+1. En un sartén se coloca la cebolla previamente cortada en tiritas.
+2. Agregamos salsa de tomate.
+3. Especias o condimentos al gusto.
+4. " el salami se corta en rodajas"
 
-##### Paso 3. 
-El paso 3 es opcional, no es un requerimiento, y es ***tomar una copita de vino*** mientras te dispones a hacer la pizza.
+## Armado de la pizza:
 
-##### Paso 4. 
-(Omita este paso en caso que no haya seguido el paso 3), para el paso 4 sera recomendable tomar otra copita de vino por si se encuentra muy deshidratado.
+En una bandeja estiramos una bolita de masa, le agregamos salsa y la enviamos al horno 
+Cuando la masa se encuentre lista, la sacamos del horno, le agregamos el queso rallado, las tajadas de salami un poco de salsa y nuevamente al horno por unos minutos, saquela y disfrutela.
 
-##### Paso 5. 
-(Omita este paso en caso que no haya seguido el paso 4) toooomeeeeee otraaaa copita de vinoooo, y diga saluuuuud, brindemos por la vida....
+# LISTA PARA COMER...
+<<<<KatherineBalanta>>>>
 
-##### Paso 6.
-(ste paso en caso omita  que el paso 5 no haya seguido) T0m3seee utrrrrra botheyaa de vino y diga saluuuuuud.
 
-##### Paso 7. 
-(Sigaaa y Omitaaaa heel 2  por sy6vb...) Mheeetaa la   pizsa ennnnn el vinoo, echieleee massss vinoo, y brindemoooos saluuuuuuuud...
-
-##### Paso 8. 
-ksnjdnnjna jan ajs... slaujd!

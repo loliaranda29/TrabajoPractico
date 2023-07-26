@@ -1,16 +1,6 @@
-
-# **RECETA PARA PIZZA**
-
 ## Ingredientes:
 
-1. *queso*
-2. *harina*
-3. *levadura*
-4. *aceite*
-5. *sal*
-6. *cebolla*
-7. *tomate*
-8. *salami*
+
 
 ## Preparación de la masa:
 

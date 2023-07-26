@@ -2,7 +2,6 @@
 
 # Paso a paso de como hacer una **Pizza** a la **Joselini**.
 
----
 
 ## Ingredientes para hacer **Pizza** casera:
 1. _1 kilogramo de harina de fuerza (también conocida como harina 00)_
@@ -11,7 +10,7 @@
 5. _2 cucharadas soperas de aceite de oliva_
 8. _30 gramos de levadura fresca_
 
----
+
 
  ### Utensilios:
 *  _Rodillo de madera_
